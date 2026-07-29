@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LORI800901HPLPVS00
+LORI800901HPLPVS00
